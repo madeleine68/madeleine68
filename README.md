@@ -6,7 +6,7 @@
  
  👯 I am looking for an opportunity to collaborate on any project involving analysis of the data.
  
- 📫 How to reach me: Madeleine.moghadasi@gmail.com
+ 📫 How to reach me: madeleine.moghadasi@gmail.com
  
  😄 Pronouns: she/her
  
