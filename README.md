@@ -10,4 +10,3 @@
  
  😄 Pronouns: she/her
  
- ⚡ Fun fact: I enjoy converting photographs to digital illustrations for fun on my free time. dreams of having an avocado bar one day 🥑
