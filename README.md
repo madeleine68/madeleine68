@@ -1,6 +1,6 @@
 ### Hi there 👋
 
- 🔭 I’m currently working with a dataset about cars.
+ 🔭 I’m activley looking for a data analyst position.
  
  🌱 Right now, I am focusing on sharpening my skills on different python libraries.
  
