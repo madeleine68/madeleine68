@@ -8,5 +8,5 @@
  
  📫 How to reach me: madeleine.moghadasi@gmail.com
  
- 😄 Pronouns: she/her
+
  
