@@ -1,4 +1,4 @@
-### Hi There
+### Hi
 
  🔭 I’m activley looking for a Data Analyst|Data Scientist position
  
