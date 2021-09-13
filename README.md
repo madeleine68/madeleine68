@@ -1,6 +1,6 @@
 ### Hi
 
- 🔭 I’m activley looking for a Data Analyst|Data Scientist position
+ 🔭 I’m activley looking for a ... position
  
  🌱 Right now, I am focusing on sharpening my skills on different python libraries
  
