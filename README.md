@@ -1,6 +1,6 @@
 ### Hi
 
- 🔭 I’m activley looking for a ... position
+ 🔭 I’m activley looking for a full stack web development/frontend developer position
  
  🌱 Right now, I am focusing on sharpening my skills on different python libraries
  
