@@ -4,7 +4,7 @@
  
  🌱 Right now, I am focusing on sharpening my skills on learning React
  
- 👯 I am looking for an opportunity to collaborate on any project
+ 👯 I am looking for an opportunity to collaborate on any project.
  
  📫 How to reach me: madeleine.moghadasi@gmail.com
  
