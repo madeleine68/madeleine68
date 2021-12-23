@@ -6,7 +6,7 @@
  
  👯 I am looking for an opportunity to collaborate on any project.
  
- 📫 How to reach me: madeleine.moghadasi@gmail.com
+ 📫 How to reach me: madeleine.moghadasi@gmail.com.
  
 
  
